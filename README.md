@@ -17,5 +17,5 @@
 最新地址⑥:http://www.365fuli.club/[部分区域无法浏览]
 
 
-聯繫郵箱：mailto:whatque001@hotmail.com
+聯繫郵箱：whatque001@hotmail.com
 
