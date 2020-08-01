@@ -4,6 +4,6 @@
   
   服务器受到攻击，请 提供用户名 邮件 卡密 到 whatque001@hotmail.com 获取网站最新相关消息,非常抱歉给您带来不便!
   
-  最新地址:http://www.365fuli.xyz
+  最新地址:~~http://www.365fuli.xyz~~
 
 服务器受到攻击，请 提供用户名 邮件 卡密 到 whatque001@hotmail.com 获取网站最新相关消息,非常抱歉给您带来不便!
