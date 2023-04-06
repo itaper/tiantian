@@ -24,7 +24,7 @@
   
   www.99hfunsing.xyz
   
-  ~~www.funxing2022.xyz~~
+  ~~funxing2022.xyz~~
   
   ~~funxing2012.coscos22.club~~
   
