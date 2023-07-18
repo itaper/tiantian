@@ -38,6 +38,7 @@
   http://www.funxing.xyz/
 
 记住收藏地址发布：http://funxing.store
+
         https://about.me/loofoo
 
 如有服务器受到攻击，请 提供用户名 邮件 卡密 到 whatque001@hotmail.com 获取网站最新相关消息,非常抱歉给您带来不便!
