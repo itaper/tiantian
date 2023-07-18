@@ -6,36 +6,36 @@
   
   最新地址:
 
-  posheer.xyz
+  http://posheer.xyz
   
-  posheao.xyz
+  http://posheao.xyz
   
-  posheao.site
+  http://posheao.site
   
-  www.posheer.xyz
+  http://www.posheer.xyz
   
-  www.funsing2303.xyz
+  http://www.funsing2303.xyz
 
-  www.funsing0228.store
+  http://www.funsing0228.store
 
-  www.fancing202302.click
+  http://www.fancing202302.click
 
-  www.fansing.store
+  http://www.fansing.store
   
-  www.funxing2211.online 
+  http://www.funxing2211.online 
   
-  www.99hfunsing.xyz
+  http://www.99hfunsing.xyz
   
-  www.funxing2013.xyz
+  http://www.funxing2013.xyz
   
-  www.99hfunsing.xyz
+  http://www.99hfunsing.xyz
 
-  www.funxing2012.xyz
+  http://www.funxing2012.xyz
   
   ~~funxing2022.xyz~~~~funxing2012.coscos22.club~~~~funxing.dohofo.xyz~~~~funxing.coscos33.club~~~~http://www.365fuli.site~~  
   部分地區使用網頁代理  非常感谢您的支持
   
-  http://www.funxing.xyz/
+  http://funxing.xyz
 
 ## 记住收藏地址发布：
    http://funxing.store
