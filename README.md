@@ -37,7 +37,7 @@
   
   http://www.funxing.xyz/
 
-记住收藏地址发布：
+## 记住收藏地址发布：
    http://funxing.store
    
    https://about.me/loofoo
